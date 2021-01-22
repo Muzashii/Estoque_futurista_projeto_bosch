@@ -1,0 +1,1 @@
+# Estoque_futurista_projeto_bosch
